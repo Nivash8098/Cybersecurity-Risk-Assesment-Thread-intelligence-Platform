@@ -1,1 +1,0 @@
-# Cybersecurity-Risk-Assesment-Thread-intelligence-Platform
